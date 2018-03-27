@@ -1,2 +1,3 @@
 # maga, carta de triunfo
-魔法 特朗普卡
+
+魔術師，王牌 ( Móshù shī, wángpái ) Magician, trump card
